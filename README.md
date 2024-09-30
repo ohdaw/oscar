@@ -1,1 +1,1 @@
-# oscar
+🔗 https://oscar.shame.rip/
